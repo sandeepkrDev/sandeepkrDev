@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @Geek-Sandeep
+- 👋 Hi, I’m Sandeep Kumar
 - 💞️ I’m looking to collaborate on --undefined--.
 - 📫 How to reach me > Why? 💁
